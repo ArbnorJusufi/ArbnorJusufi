@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me  
 
-linkedIn :linkedin.com/in/arbnor-jusufi-34050699,
+linkedIn : linkedin.com/in/arbnor-jusufi-34050699,
 email : arbnorjusufi01@gmail.com
 
 <!---
